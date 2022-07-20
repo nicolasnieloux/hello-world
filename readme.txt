@@ -1,0 +1,1 @@
+Bonjour, je cuits des saucisses!
